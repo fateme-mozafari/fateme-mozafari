@@ -1,6 +1,6 @@
 ## Welcome 
 
-[image](images.jfif)
+images.jpg
 ### About me
 
 I am fatemeh mozafari,computer engineering student in PNU
