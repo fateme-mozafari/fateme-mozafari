@@ -6,7 +6,7 @@ I am fatemeh mozafari,computer engineering student in PNU
 
 ### Other Accounts
 
- [quera](https://quera.ir/profile/mahtaasadpour99)
+ [quera](https://quera.ir/profile/fateme941)
  
   [instagram](https://instagram.com/fatemeh.mzf.pv?igshid=sbvixx56s1ck)
   
