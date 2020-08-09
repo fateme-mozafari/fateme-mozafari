@@ -3,7 +3,9 @@
 [img](images.jpg)
 ### About me
 
-I am fatemeh mozafari,computer engineering student in PNU
+My name is Fatemeh Mozafari, I was born in 1378 in Iran. I'm fully fluent in Persian and somewhat fluent in English.
+I have a high school Diploma and I'm currently an undergraduate student studying computer engineering. 
+I love sports, my favourite activities are swimming, riding a bike and volleyball.
 
 
 ### Other Accounts
